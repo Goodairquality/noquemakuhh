@@ -1,7 +1,11 @@
 Hey I’m kio :))
+
 I’m interested in coding, music, etc
+
 I’m currently learning a lot
+
 she/her
+
 Fun fact: I listen to a lot of music and even make somee :))
 
 <!---
